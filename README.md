@@ -1,0 +1,2 @@
+# companya.baznar
+Welcome  |  بخێرهاتی
